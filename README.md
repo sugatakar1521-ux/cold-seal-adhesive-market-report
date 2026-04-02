@@ -1,4 +1,5 @@
 # Cold Seal Adhesive Market: Industry Report for Investors & Supply Chain Leaders
+![Cold Seal Adhesive Market](https://github.com/user-attachments/assets/6c5511a0-2291-46f2-9852-0360da4c5b76)
 
 
 **Market Overview** 
